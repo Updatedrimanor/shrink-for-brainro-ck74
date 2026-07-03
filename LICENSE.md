@@ -1,4 +1,4 @@
-#  
+#  top shrink for brainrots Script offers the most advanced shrink for brainrots Script, with unlimited stamina and esp. Perfect for dominating any
 
 
 
